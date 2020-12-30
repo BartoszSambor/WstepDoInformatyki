@@ -1,1 +1,1 @@
-# WstepDoInformatyki
+# Wstep Do Informatyki
